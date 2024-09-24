@@ -3,5 +3,4 @@
 
 > Pacol, Naga City
 ---
-### My PT Group Members:
-#### ***[Laetitia Rose B. Bance]*** ***[Ma. Yummi Denise DL. Baranda]*** ***[Sid Emmanuel B. Cabacang]*** ***[Godwin Judd D. Perez]***
+### My Interests
